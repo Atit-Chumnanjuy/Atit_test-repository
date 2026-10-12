@@ -6,6 +6,6 @@ We just met for the first time but we look alike.
 # Our Favorite Things
 Playing Games, Playing Games
 ## Favorite Food
-Fried Chicken, Noodle
+Fried Chicken, Shabu
 ## Favorite Activities
 Playing Games, Playing Games
